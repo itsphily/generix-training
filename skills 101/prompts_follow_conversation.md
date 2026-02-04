@@ -1,0 +1,1 @@
+I've attached the best practices for budget reallocation, how should I reallocate my budget ? I can shift up to $10k between channels, and limit increases to 15% per channel.
